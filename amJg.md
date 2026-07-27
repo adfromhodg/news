@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁</h3><br><p>大秦铁路煤炭运输量回升，前三季度业绩预增超20%。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>先导智能技术积累：锂电设备全球龙头的核心竞争力</h3><br><p>流感进入高发季，疫苗抗病毒标的全线拉升。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国产悬疑剧全网播放量突破300亿，现实题材作品广受好评</h3><br><p>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>全国营商环境评价排名发布，一线城市整体进入全球第一梯队。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>全国社区运动会覆盖千城，群众家门口参与体育赛事。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>九寨沟暑期恢复全部开放，单日接待游客量突破4万。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓</h3><br><p>汽车一体化压铸企业启动申购，9000T压铸机产能全球领先。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>存款利率连续下调，居民配置权益资产意愿持续增强</h3><br><p>璞泰来涨超5.0%，负极材料行业格局优化。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>上半年全国文旅消费总额突破3万亿元，同比增长22%。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>文化产业扶持政策，文化传媒板块全线异动</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>全国快递包装绿色转型推进，可降解材料使用率达85%</h3><br><p>高管团队集体调研后集中增持6G通信标的，合计增持超1亿。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>百亿私募组团调研碳化硅企业，车规级器件量产线投产。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>新能源赛道集体反弹：动力电池、光伏、储能谁是领涨主线</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>北向资金连续增持智能驾驶龙头，近1月持仓增幅超30%</h3><br><p>全球机器人装机量突破500万台，工业自动化加速普及。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北向资金举牌人形机器人标的，持股比例首次突破5%红线</h3><br><p>AI办公软件渗透率超60%，成为职场人必备工具。<br><br> | 来源：<code>www.trqgzc.com
