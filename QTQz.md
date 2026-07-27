@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国体育产业总规模上半年突破1.5万亿元，赛事经济火热</h3><br><p>游资顶级席位打板中兴通讯2.2亿，通信标的获短线资金热炒。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>海天味业调味品渠道优势：国内调味品龙头的下沉网络。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>世界文化遗产新增2处，我国世遗总数增至60处。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>紫金矿业创阶段新高3.2%，铜金产量持续超预期</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>国电南瑞电网自动化优势：国内电网信息化龙头的价值</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>通威股份异动拉升5.2%，渔光互补项目持续落地</h3><br><p>涪陵榨菜产品提价能力：细分赛道龙头的定价权解析。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>存量房贷利率下调后居民消费回升，旅游酒店板块受益</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>外资持续流入万科A，地产龙头外资持仓占比突破2%</h3><br><p>金龙汽车海外客车出口翻倍，前三季度业绩预增超60%。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>联合国可持续发展目标中期评估，明确后续行动路径</h3><br><p>全国徒步大会覆盖300城，参与人次破千万。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>央行表态适时加大政策力度，后续降准降息仍有空间</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>宠物友好景区数量破千，携宠出游成为家庭消费新选择</h3><br><p>全国生态环境监测网络全覆盖，实时数据向公众开放。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>锂矿板块触底反弹：行业拐点是否已经正式确立</h3><br><p>百亿私募组团调研光模块企业，1.6T产品送样海外客户。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>上海推出“夜生活节”，夜间商户营业额同比增长60%</h3><br><p>QFII集中调研乳制品龙头，高端产品占比提升至45%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>亨通光电海缆业务放量，前三季度业绩预增超45%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>创新药管线进入收获期：CXO、生物医药的行情持续性</h3><br><p>全国儿童青少年近视率同比下降2%，视力防控成效显现。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国青少年冰雪赛事覆盖南方城市，冰雪运动南展西扩</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>国内文创产品市场规模破千亿，故宫文创年营收超20亿</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>全国商品房销售面积同比由负转正，市场信心逐步恢复</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>三一重工全球化布局：工程机械龙头的第二增长曲线</h3><br><p>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴。<br><br> | 来源：<code>www.qianfangdiy.cn
