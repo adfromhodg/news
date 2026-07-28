@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>华北高速涨超1.9%，京津冀路网业务稳健</h3><br><p>长安汽车自主转型路径：从传统燃油车到新能源的蜕变。<br><br> | 来源：<code>https://fujianu-jiejie-weiba-dongman.com.cn
+</code></p><br><br><h3>多地文旅部门推出“先游后付”服务，提升游客消费体验</h3><br><p>通威股份低位反弹，超跌后的修复行情持续性判断。<br><br> | 来源：<code>https://fuli-ba.cn
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>https://fuli-daohang.com.cn
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>储能装机强制配比政策升级，储能产业链标的拉升。<br><br> | 来源：<code>https://fuli-ji.com.cn
+</code></p><br><br><h3>全国体育彩票年销量突破5000亿元，公益金助力民生事业</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>https://fuli-shipin.cn
+</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://fulidaohang.cn
+</code></p><br><br><h3>良渚古城遗址新发现大型水利工程，实证5000年文明史</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>https://fulidaohang.com.cn
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带。<br><br> | 来源：<code>https://fulidaohang.org.cn
+</code></p><br><br><h3>亚运会赛事热度超预期，体育产业板块全线上涨</h3><br><p>中国中车海外订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://fulidaohangwang.cn
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>海尔智家稳步上行，慢牛趋势下的持仓节奏。<br><br> | 来源：<code>https://fulidaohangzaixian.cn
+</code></p><br><br><h3>上半年全国文旅消费总额突破3万亿元，同比增长22%</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://fulidaohangzaixianguankan.cn
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>中国围棋AI算法登顶世界，人工智能助力棋类运动发展。<br><br> | 来源：<code>https://fulipuzi.org.cn
+</code></p><br><br><h3>贵州茅台渠道改革进展：直营占比提升下的盈利弹性测算</h3><br><p>华为星闪技术大规模商用，相关产业链标的领涨。<br><br> | 来源：<code>https://fulishedaohang.cn
+</code></p><br><br><h3>张家界暑期接待人次破2000万，山地游产品持续热销</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://fulishipindao.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://fulishipindaohang.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>机构席位大额买入拓普集团9200万，零部件龙头获长线布局。<br><br> | 来源：<code>https://fulishipinwangzhan.cn
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>黄河流域生态保护取得阶段性成效，水质优良比例达92%。<br><br> | 来源：<code>https://fulishipinwangzhi.cn
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>https://fulishipinzaixian.cn
+</code></p><br><br><h3>国内低空文旅项目升温，热气球、滑翔伞体验订单同比暴涨</h3><br><p>水产品价格集体上涨，水产养殖板块迎来涨价催化。<br><br> | 来源：<code>https://fuliwangzhan.cn
+</code></p><br><br><h3>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局</h3><br><p>中韩经贸合作升级，双边自贸协定第二阶段谈判完成。<br><br> | 来源：<code>https://fuliwangzhan.org.cn
