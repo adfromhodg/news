@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分45秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>财政部出台减税降费新政，全年为企业减负超1.2万亿元。<br><br> | 来源：<code>https://se-zhibo.com.cn
+</code></p><br><br><h3>中国女子排球队奥运资格赛全胜，直通巴黎奥运会</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>https://secure-kaiyun-web.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>罕见病药物医保激励政策，罕见病药标的走强。<br><br> | 来源：<code>https://sedaohang.com.cn
+</code></p><br><br><h3>电池片价格小幅上调3%，光伏产业链盈利分配优化</h3><br><p>养老金新进车载芯片龙头，布局车规级半导体赛道。<br><br> | 来源：<code>https://sedog.com.cn
+</code></p><br><br><h3>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房</h3><br><p>北京国际铁人三项赛举办，吸引全球千名选手参赛。<br><br> | 来源：<code>https://sehua-tang.com.cn
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露</h3><br><p>特高压工程集中获批，电网设备板块全线异动。<br><br> | 来源：<code>https://sehuatang.com.cn
+</code></p><br><br><h3>能耗双控政策优化，高耗能行业龙头标的走强</h3><br><p>华域汽车汽车零部件平台：国内汽车零部件龙头的价值。<br><br> | 来源：<code>https://sejishikong.com.cn
+</code></p><br><br><h3>大模型在教育测评领域应用，自动批改作文准确率超教师</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://selifan.com.cn
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://selunyan.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>https://semantiantang.com.cn
+</code></p><br><br><h3>澜起科技异动拉升4.3%，内存接口芯片份额提升</h3><br><p>良渚古城遗址新发现大型水利工程，实证5000年文明史。<br><br> | 来源：<code>https://semanwu.com.cn
+</code></p><br><br><h3>锦浪科技逆变器出口翻倍，前三季度业绩预增超90%</h3><br><p>全国电解铝行业全部实现超低排放，能耗水平全球领先。<br><br> | 来源：<code>https://semeimei.com.cn
+</code></p><br><br><h3>天津推出“夜津城”活动，相声演出夜间场次一票难求</h3><br><p>制造业PMI连续6个月位于扩张区间，行业景气度持续回升。<br><br> | 来源：<code>https://seqingyouxi.com.cn
+</code></p><br><br><h3>呼吸道疾病高发，儿科医药板块集体上涨</h3><br><p>全国县域商业体系建设完成，农村消费市场潜力持续释放。<br><br> | 来源：<code>https://sesedongmanwang.com.cn
+</code></p><br><br><h3>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://sesemanhua.com.cn
+</code></p><br><br><h3>全国智慧健身器材普及至社区，运动数据实时上传健康平台</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益。<br><br> | 来源：<code>https://sesesexsehuwangzhan.cn
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>新能源整车板块集体反弹：谁是下一个领涨龙头。<br><br> | 来源：<code>https://sesewangzhan.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>巴西经济复苏，二季度农业工业双增长。<br><br> | 来源：<code>https://sesewangzhan.com.cn
+</code></p><br><br><h3>长江流域水质优良断面比例达99%，生态环境持续改善</h3><br><p>瑞典经济走出负增长，科技产业拉动复苏。<br><br> | 来源：<code>https://seseyouxi.com.cn
+</code></p><br><br><h3>江铃汽车异动拉升4.2%，轻卡新能源化加速</h3><br><p>鸭肉价格上涨12%，水禽养殖板块迎来行情。<br><br> | 来源：<code>https://sezaixian.cn
