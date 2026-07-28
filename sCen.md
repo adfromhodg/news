@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国新型电力系统建设提速，新能源消纳能力提升35%</h3><br><p>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平。<br><br> | 来源：<code>https://fulidaohangwang.cn
+</code></p><br><br><h3>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风</h3><br><p>机构资金联手买入北京君正9500万，车载存储龙头获抱团。<br><br> | 来源：<code>https://fulidaohangzaixian.cn
+</code></p><br><br><h3>炒股最难的不是买对，而是在波动里守住正确的持仓</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://fulidaohangzaixianguankan.cn
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>https://fulipuzi.org.cn
+</code></p><br><br><h3>磷肥价格单月上涨8%，磷化工龙头盈利改善</h3><br><p>沃森生物涨超4.6%，新型疫苗临床进展超预期。<br><br> | 来源：<code>https://fulishedaohang.cn
+</code></p><br><br><h3>美联储开启降息周期，人民币汇率迎来趋势性升值</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>https://fulishipindao.cn
+</code></p><br><br><h3>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑</h3><br><p>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序。<br><br> | 来源：<code>https://fulishipindaohang.cn
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://fulishipinwangzhan.cn
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>南京夫子庙暑期客流超2000万，秦淮夜游营收同比翻倍。<br><br> | 来源：<code>https://fulishipinwangzhi.cn
+</code></p><br><br><h3>“双减”成效显著，校外违规培训机构清零率超98%</h3><br><p>全球智能手机市场回暖，二季度出货量同比增长7%。<br><br> | 来源：<code>https://fulishipinzaixian.cn
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性。<br><br> | 来源：<code>https://fuliwangzhan.cn
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>箱板纸价格上涨5%，包装产业链盈利改善。<br><br> | 来源：<code>https://fuliwangzhan.org.cn
+</code></p><br><br><h3>地方国资战略入股人形电机龙头，助力核心零部件国产化</h3><br><p>国内AI伦理规范发布，引导大模型健康有序发展。<br><br> | 来源：<code>https://fuliwangzhidaohang.cn
+</code></p><br><br><h3>公募基金集中调研电力现货交易标的，交易系统订单翻倍</h3><br><p>全面降准0.25个百分点，释放长期资金5000亿。<br><br> | 来源：<code>https://fuliwuye.com.cn
+</code></p><br><br><h3>大模型在农业病虫害防治领域应用，减少农药使用20%</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://gaishidongman.com.cn
+</code></p><br><br><h3>多地推出城市更新专项政策，年内撬动投资超万亿元</h3><br><p>国内大模型性能榜单更新，国产模型多项指标超越国际竞品。<br><br> | 来源：<code>https://galagame.com.cn
+</code></p><br><br><h3>全国糖尿病患者规范管理人数超8000万，并发症发生率下降</h3><br><p>中国交建涨超3.2%，港口航道业务优势凸显。<br><br> | 来源：<code>https://galaxiaozhan.com.cn
+</code></p><br><br><h3>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业</h3><br><p>全国京津冀生态环境联建联防联治，空气质量同比改善10%。<br><br> | 来源：<code>https://galgamewangzhan.com.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>科大讯飞AI技术落地：从技术研发到商业化变现的拐点。<br><br> | 来源：<code>https://galgamexiazai.com.cn
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>多模态大模型实现4K视频实时生成，10秒产出高清短视频。<br><br> | 来源：<code>https://galgameziyuan.com.cn
